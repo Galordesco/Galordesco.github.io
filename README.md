@@ -1,1 +1,0 @@
-# Galordesco.github.io
